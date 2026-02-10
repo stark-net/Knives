@@ -1,5 +1,5 @@
-**Leatherman FREE K2**
-**BLACK FOX ATROS #BF-770 BL**
-**BLACK FOX SPEAR #BF-783 G10**
-**BOKER PLUS Baba Yaga #01BO386**
-**BOKER PLUS Little Friend #01BO385**
+**Leatherman FREE K2**\n
+**BLACK FOX ATROS #BF-770 BL**\n
+**BLACK FOX SPEAR #BF-783 G10**\n
+**BOKER PLUS Baba Yaga #01BO386**\n
+**BOKER PLUS Little Friend #01BO385**\n
